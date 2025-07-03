@@ -1,0 +1,1 @@
+# smart_cut_ai_mobile
